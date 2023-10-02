@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gg-nike
+- Java developer
+- https://astro.rip project :>
+- 📫 How to reach me: discord/ onsmack
